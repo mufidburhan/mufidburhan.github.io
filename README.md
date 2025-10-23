@@ -1,1 +1,0 @@
-# mufidburhan.github.io
